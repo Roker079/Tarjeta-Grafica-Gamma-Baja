@@ -1,0 +1,1 @@
+# Tarjeta-Grafica-Gamma-Baja
